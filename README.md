@@ -4,4 +4,3 @@
 ---
 
 Discente: Francisco Alex Sousa Anchieta
-Universidade Federal do Ceará - UFC, Campus Crateús
